@@ -26,3 +26,7 @@ Schooling (Number of years of Schooling(years))\
 
 
 https://user-images.githubusercontent.com/81245467/122097125-fd0d2980-ce17-11eb-805b-7c4138af3cb7.mp4
+
+
+https://user-images.githubusercontent.com/81245467/122097872-d4396400-ce18-11eb-95cd-6a82beb9b2ee.mp4
+
